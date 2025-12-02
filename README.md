@@ -1,3 +1,5 @@
 # DN1.L1ST
 
-wip augh
+ {{ dni = do not interact ! if you fit any of these please block me }}
+
+    wip..
