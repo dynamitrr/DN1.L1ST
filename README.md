@@ -1,21 +1,24 @@
 # DN1.L1ST
   
-    dni = do not interact ! if you fit any of these , please block me
+  **dni** = do not interact ! if you fit any of these , ***please block me***
 
 * islamophobes 
 
-* israel supporters 
+* **israel** supporters 
 
-* ai artists (or just anyone who supports the use of gen ai)
+* ai artists (or just *anyone* who supports the use of gen ai)
 
 * darkshippers
 
-* anti - yumeshipping / selfshipping
+* **anti** - yumeshipping / selfshipping
 
-* if you hate any of my favorite characters / medias 
+* if you hate any of my **favorite** characters / medias 
 
-* if you call yourself the "#1 matt engarde fan"
-
-* haruhi fujioka yumeshippers (aka doubles
+* if you **think** *you're* the "#1 matt engarde fan"
+   `news flash incoming: you aren't !!! :3`
+  
+* doubles
+  
+* *sark / hellaverse* fans
 
    okayy that's all : 3
