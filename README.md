@@ -21,4 +21,5 @@
   
 * *sark / hellaverse* fans
 
-   okayy that's all : 3
+   there's prob more so check my strawpage for my main list
+  [https://all-about-lara.straw.page]
